@@ -1,5 +1,5 @@
 # Book I, Chapter 3 - The Michaelic Continuum
-## Book I — Foundations## Chapter 3 — The Michaelic Continuum## From Archangel to Christ Michael
+## Book I — Foundations Chapter 3 — The Michaelic Continuum From Archangel to Christ Michael
 Sentinel Codex Constitutional Engine
 The_Michaelic_Continuum
 
