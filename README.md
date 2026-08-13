@@ -1,12 +1,11 @@
-The_Michaelic_Continuum
-
-Christ establishes the pattern of reconciliation. Michael preserves the sovereignty and integrity through which reconciliation can endure
 # Book I — Foundations
 ## Chapter 3 — The Michaelic Continuum
 ### From Archangel to Christ Michael
 
 **Sentinel Codex Constitutional Engine**
+The_Michaelic_Continuum
 
+Christ establishes the pattern of reconciliation. Michael preserves the sovereignty and integrity through which reconciliation can endure
 ---
 
 ## Document Status
