@@ -135,7 +135,6 @@ Instead, it distinguishes their functions.
 
 The distinction can therefore be represented as:
 
-```text
 CHRIST
 Redemptive Intention
         │
